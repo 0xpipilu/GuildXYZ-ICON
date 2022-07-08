@@ -1,4 +1,4 @@
-Create 20 pieces of DAO-related bicolor pixel art ICON for GUILD.XYZ
+DAO-related bicolor pixel art ICON for GUILD.XYZ
 
 
 Updated
